@@ -1,1 +1,1 @@
-Welcome to Master Su. Find it on Play Store.
+Welcome to Master Su. Find it on Google Play.
